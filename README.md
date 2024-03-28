@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KevLan2A
-- 👀 I’m interested in ...
+- 👀 I’m a French learner 
 - 🌱 I’m currently learning Front End tech 
 
 - 📫 How to reach me : by discord or Whatsapp 
